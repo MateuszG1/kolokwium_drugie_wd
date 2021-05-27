@@ -1,0 +1,1 @@
+#zestaw A, grupa I/2
